@@ -3,11 +3,11 @@
 
 - 📝 I regularly write articles on [https://medium.com/@shivamsunny620](https://medium.com/@shivamsunny620)
 
-- 💬 Ask me about **Frontend**
+- 💬 Ask me about **APM** **Consulting** **Analyst** **Product Management** **Frontend** **Full Stack** **AI/ML**
 
 - 📫 How to reach me **shivamsunny620@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ENMmgjM1xgRW4jaiIkBgGcC_soPY9Yv2/view?usp=sharing](https://drive.google.com/file/d/1ENMmgjM1xgRW4jaiIkBgGcC_soPY9Yv2/view?usp=sharing)
+
 
 - ⚡ Fun fact **I am learner and explorer who want to learn and explore everything.**
 
